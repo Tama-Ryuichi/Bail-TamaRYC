@@ -1,1 +1,1 @@
-Baileys Kyurzy, Aku hanya Mengubah Link tanpa mengubah credit
+//Baileys Kyurzy, Aku hanya Mengubah Link tanpa mengubah credit
